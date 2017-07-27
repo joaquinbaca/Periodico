@@ -1,3 +1,3 @@
 Integrantes del grupo:
 
-Joaquín Baca, Iván Pérez Fernández
+Joaquín Baca Medialdea 
